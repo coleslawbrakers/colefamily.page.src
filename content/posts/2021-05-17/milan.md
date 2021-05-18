@@ -66,8 +66,10 @@ Over the winter we only got serious snow twice, but we made sure to enjoy it whe
 
 ![ezri_snow](ezri_snow.jpg)
 
-The timing barely worked, but before leaving the area, we were able to get both doses of our COVID vaccines. The first we just had some arm soreness, but the second dose hit me pretty hard with chills and a fever of 102. James was just a little tired, so it worked out that he was able to keep Ezri happy while I recovered. Still well worth the safety, obviously. While we were waiting for the vaccines, James also had to get a little dental surgery for his front teeth, luckily the timing worked out for that and we were able to get all the appointments taken care of before leaving the area!. It's certainly nice to have a friend in the industry (Cindy) to help keep us taken care of! 
+The timing barely worked, but before leaving the area, we were able to get both doses of our COVID vaccines. The first we just had some arm soreness, but the second dose hit me pretty hard with chills and a fever of 102. James was just a little tired, so it worked out that he was able to keep Ezri happy while I recovered. Still well worth the safety, obviously. While we were waiting for the vaccines, James also had to get a little dental surgery for his front teeth, luckily the timing worked out for that and we were able to get all the appointments taken care of before leaving the area. It's certainly nice to have a friend in the industry (Cindy) to help keep us taken care of! 
 
 ![teeth](teeth.jpg)
 
-On May 1st we left out to the first stop for this year, Athens, Ohio.
+On May 1st we left out to the first stop for this year, Athens, Ohio. We're moving every two weeks this year, and unlike past moves, we've had to schedule all the way out to October because of the increased park demand. 
+
+As a reminder, you can check out our current travel plans at https://colefamily.page/plan/ and see the travel map at https://colefamily.page/map/
