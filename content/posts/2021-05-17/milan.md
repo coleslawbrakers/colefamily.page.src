@@ -34,7 +34,7 @@ Our friends, David and Cindy Parent, and their kids live just about a half hour 
 
 ![david](david.jpg)
 
-We went with Emily for a drive up to Frankenmouth, Michigan once the weather got a little less cold. The town was founded by German immigrants, so there is some really interesting architecture and it's a bit of a tourist trap. We didn't make it through too much of the town, as we spent entirely too much time and money in a board game shop we found, but it was definitely a fun trip.
+We went with Emily for a drive up to Frankenmuth, Michigan once the weather got a little less cold. The town was founded by German immigrants, so there is some really interesting architecture and it's a bit of a tourist trap. We didn't make it through too much of the town, as we spent entirely too much time and money in a board game shop we found, but it was definitely a fun trip.
 
 ![ezri_franken](ezri_franken.jpg)
 
