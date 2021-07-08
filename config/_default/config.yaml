@@ -15,7 +15,8 @@ publishDir: "public"
 enableRobotsTXT: true
 rssLimit: 10
 uglyURLs: true
-
+cleanDestinationDir: true
+  
 params:
   favicon: ""
   description: "Cole's Law Brakers' Travel Blog"
