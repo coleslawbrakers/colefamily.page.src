@@ -33,7 +33,7 @@ Nearby is Keeseville, New York, which is a very small town with not much of a do
 
 ![mill](mill.jpg)
 
-We drove up to Plattsburgh, NY a few times during our stay. It has a good, walkable downtown and even a few properties available really close to the downtown. The schools in the area are not the best though, with ratings of 3/10 to 5/10. We did have a really great experience with the local bike shop, coffee shop, and card / board gaming shop, it really feels like the community is getting some great things going.
+We drove up to Plattsburgh, NY a few times during our stay. It has a good, walkable downtown and even a few properties available really close to the downtown. We had a really great experience with the [local bike shop](http://mauinorth.net/), [coffee shop](http://www.koffeekat.net/), and [card / board gaming shop](https://www.facebook.com/ACGamingSpace), it really feels like the community is getting some great things going. The schools in the area are not the best though, with ratings of 3/10 to 5/10.
 
 ![plattsburgh](plattsburgh.jpg)
 
@@ -53,7 +53,7 @@ We also drove out to Saranac Lake, NY, which is still touristy, but quieter than
 
 ![saranac_lake2](saranac_lake2.jpg)
 
-We also took a drive through 2 of the major islands on Champlain Lake; Ilse La Motte and Grande Isle. Living on an island just sounded so cool, but we quickly realized that while they are nice islands, there are very few amenities and no real running/cycling available. It was still a nice drive, and on the way back we took the ferry, which was a new experience for all of us.
+We also took a drive through 2 of the major islands on Champlain Lake; Isle La Motte and Grande Isle. Living on an island just sounded so cool, but we quickly realized that while they are nice islands, there are very few amenities and no real running/cycling available. It was still a nice drive, and on the way back we took the ferry, which was a new experience for all of us.
 
 ![island1](island1.jpg)
 
