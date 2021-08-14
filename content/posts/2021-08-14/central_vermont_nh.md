@@ -70,7 +70,7 @@ We drove through Waitsfield, which doesn't have as walkable of a downtown, but i
 
 ![waitsfield](waitsfield.jpg)
 
-We spent the morning of July 4th in Stowe for a parade, which was nice, but the amount of people on the sidelines was about 3x as many as the route could really accommodate, so Ezri was unable to catch any candy past the adults and children that were in front of us. Stowe felt a bit crowded every time we went out there, and property prices in the area and crazy high, so it's not a place we'd like to live.
+We spent the morning of July 4th in Stowe for a parade, which was nice, but the amount of people on the sidelines was about 3x as many as the route could really accommodate, so Ezri was unable to catch any candy past the adults and children that were in front of us. Stowe felt a bit crowded every time we went out there, and property prices in the area are crazy high, so it's not a place we'd like to live.
 
 ![stowe_town](stowe_town.jpg)
 
